@@ -6,7 +6,7 @@ wip,, (3/3/26) if u use the code pls credit! <3
 <img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=UHM+HI" /> <p align="center">
 <br>
 <p align="center">
-<img src="https://i.ibb.co/1YkvH2mp/top.png" width="700" height="700%""/>
+<img src="https://i.ibb.co/1YkvH2mp/top.png" width="500" height="500%""/>
 </p>
 <div align="center">
 <div class="container">
