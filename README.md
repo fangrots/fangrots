@@ -1,7 +1,7 @@
 wip,, (3/3/26) if u use the code pls credit! <3
 
 <p align="center">
-<img src="https://i.ibb.co/1YkvH2mp/top.png" width="800" height="800%""/>
+<img src="https://i.ibb.co/1YkvH2mp/top.png" width="700" height="700%""/>
 </p>
 
  <p align="center">
