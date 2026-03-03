@@ -1,5 +1,10 @@
 wip,, (3/3/26) if u use the code pls credit! <3
 
+
+<p align="center">
+</a>
+<img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=UHM+HI" /> <p align="center">
+<br>
 <p align="center">
 <img src="https://i.ibb.co/1YkvH2mp/top.png" width="700" height="700%""/>
 </p>
@@ -16,5 +21,3 @@ wip,, (3/3/26) if u use the code pls credit! <3
  <p align="center">
 <img src="https://64.media.tumblr.com/e5e18e1b729a0ce75e76f982b8095bdd/08df97943336527c-e2/s2048x3072/96c02d146b718d5eb60d5e3c3a175625ec2ae066.gifv" width="500" height="500%""/>
 </p>
-
-![](https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=UHM+HI)
