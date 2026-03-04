@@ -71,7 +71,8 @@
     <tr></tr>
       <td>
         <div align="center">
-          WIP, Adding Blinkies and whatnots soon ! (3/3/26)
+          WIP, Adding Blinkies and whatnots soon ! (3/3/26) <br>
+           give credit if using my layouts, thank you! <3
  </td>
       </tr>
   </table>      
