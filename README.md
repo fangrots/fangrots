@@ -26,10 +26,10 @@ wip,, (3/3/26) if u use the code pls credit! <3
        
 <img src="https://i.ibb.co/9ktC3CxK/rights.png"  align="left" width="23%"> <p align="center">
 <br>
-<img src="https://i.ibb.co/KzSQ4jfs/right.png"  align="right" width="30%"> <p align="center">
    <p style="font-size: 100px;">⺌  ${\textsf{\color{#fbb2bc}KITTY}}$   or  ${\textsf{\color{#fbb2bc}DOVE}}$   !</p>
 </div>
  <table>
+    <table align="center">
     <tr></tr>
       <td>
         <div align="center">
