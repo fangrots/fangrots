@@ -20,7 +20,7 @@ wip,, (3/3/26) if u use the code pls credit! <3
 </div>
        <br>
  <p align="center">
-<img src="https://64.media.tumblr.com/e5e18e1b729a0ce75e76f982b8095bdd/08df97943336527c-e2/s2048x3072/96c02d146b718d5eb60d5e3c3a175625ec2ae066.gifv" width="500" height="500%""/>
+<img src="" width="500" height="500%""/>
 </p>
 <br>
        
@@ -37,7 +37,28 @@ wip,, (3/3/26) if u use the code pls credit! <3
            ${\textsf{\color{#fbb2bc}Sys}}$ host ， Mentally ill ， ${\textsf{\color{#fbb2bc}Always}}$ Iwc! <br>
            Dx'd N/Bpd ， Autism ， Osdd-1b+ <br>
            Yumeshipper ， Rarepair Lover ， Proship <br>
-           Socially Inept ， Introverted
+           Socially Inept and Awkward ， Introverted <br>
+           Infp-t ， 6w5 ， Melancholy-Phlegmatic <br>
+           Biracial ， Black and White ， Eng <br>
+           Artist ， Writer ， Multifandom
  </td>
       </tr>
-  </table>
+  </table>      
+<p align="center">
+<img src="https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj" width="200" height="200%""/>
+<img src="https://64.media.tumblr.com/1eb06db2257a8bc603d75634c66e4875/12b83be7f3afc336-b2/s400x600/949055a3e64739b8950dd189997e2d1d031a9fb4.pnj" width="200" height="200%""/>
+</p>
+<br>
+<br>
+<br>
+ 
+<p align="center">
+<img src="" width="500" height="500%""/>
+</p>
+<br>
+
+<details align="left">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#dbb8af}blinkies}}$  ֪𓏼𝜗℘ </summary> ${\textsf{\color{#ce8781}text.}}$ <br> hey. </details>
+
+<details align="right">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#dbb8af}userboxes}}$  ֪𓏼𝜗℘ </summary> ${\textsf{\color{#ce8781}text.}}$ <br> hey. </details>
