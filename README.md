@@ -36,7 +36,7 @@ wip,, (3/3/26) if u use the code pls credit! <3
  ｢ ${\textsf{\color{#fbb2bc}19}}$ yo  ♡ He Hrr  ♡  Anti — ${\textsf{\color{#fbb2bc}Hara}}$!｣ <br>
            ${\textsf{\color{#fbb2bc}Sys}}$ host ， Mentally ill ， ${\textsf{\color{#fbb2bc}Always}}$ Iwc! <br>
            Dx'd N/Bpd ， Autism ， Osdd-1b+ <br>
-           Yumeshipper ， Rarepair Lover <br>
+           Yumeshipper ， Rarepair Lover ， Proship <br>
            Socially Inept ， Introverted
  </td>
       </tr>
