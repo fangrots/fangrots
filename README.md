@@ -3,10 +3,10 @@ wip,, (3/3/26) if u use the code pls credit! <3
 
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=UHM+HI" /> <p align="center">
+<img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=LOCAL+BLOODBAGS" /> <p align="center">
 <br>
 <p align="center">
-<img src="https://i.ibb.co/1YkvH2mp/top.png" width="500" height="500%""/>
+<img src="https://i.ibb.co/1YkvH2mp/top.png" width="600" height="500%""/>
 </p>
 <div align="center">
 <div class="container">
@@ -22,3 +22,22 @@ wip,, (3/3/26) if u use the code pls credit! <3
  <p align="center">
 <img src="https://64.media.tumblr.com/e5e18e1b729a0ce75e76f982b8095bdd/08df97943336527c-e2/s2048x3072/96c02d146b718d5eb60d5e3c3a175625ec2ae066.gifv" width="500" height="500%""/>
 </p>
+<br>
+       
+<img src="https://i.ibb.co/9ktC3CxK/rights.png"  align="left" width="23%"> <p align="center">
+<br>
+<img src="https://i.ibb.co/KzSQ4jfs/right.png"  align="right" width="30%"> <p align="center">
+   <p style="font-size: 100px;">⺌  ${\textsf{\color{#fbb2bc}KITTY}}$   or  ${\textsf{\color{#fbb2bc}DOVE}}$   !</p>
+</div>
+ <table>
+    <tr></tr>
+      <td>
+        <div align="center">
+ ｢ ${\textsf{\color{#fbb2bc}19}}$ yo  ♡ He Hrr  ♡  Anti — ${\textsf{\color{#fbb2bc}Hara}}$!｣ <br>
+           ${\textsf{\color{#fbb2bc}Sys}}$ host ， Mentally ill ， ${\textsf{\color{#fbb2bc}Always}}$ Iwc! <br>
+           Dx'd N/Bpd ， Autism ， Osdd-1b+ <br>
+           Yumeshipper ， Rarepair Lover <br>
+           Socially Inept ， Introverted
+ </td>
+      </tr>
+  </table>
