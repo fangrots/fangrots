@@ -23,13 +23,17 @@
        
 <img src="https://i.ibb.co/KzSQ4jfs/right.png"  align="right" width="40%"> <p align="center">
 <br>
-   <p style="font-size: 100px;">⺌  ${\textsf{\color{#fbb2bc}KITTY}}$   or  ${\textsf{\color{#fbb2bc}DOVE}}$   !</p>
+   <p align="center">
+<img src="https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj" width="250" height="200%""/>
+<img src="https://64.media.tumblr.com/21374f0d4c5369ab7ad51af56d906849/0d108562eb4f0805-76/s500x750/5fd36c919f7466ccc943417629f219de1f298dc6.jpg" width="250" height="200%""/>
+</p>
 </div>
  <table>
     <table align="center">
     <tr></tr>
       <td>
         <div align="center">
+           ⺌  ${\textsf{\color{#fbb2bc}KITTY}}$   or  ${\textsf{\color{#fbb2bc}DOVE}}$   ! <br>
  ｢ ${\textsf{\color{#fbb2bc}19}}$ yo  ♡ He Hrr  ♡  Anti — ${\textsf{\color{#fbb2bc}Hara}}$!｣ <br>
            ${\textsf{\color{#fbb2bc}Sys}}$ host ， Mentally ill ， ${\textsf{\color{#fbb2bc}Always}}$ Iwc! <br>
            Dx'd N/Bpd ， Autism ， Osdd-1b+ <br>
@@ -42,8 +46,8 @@
       </tr>
   </table>      
 <p align="center">
-<img src="https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj" width="200" height="200%""/>
-<img src="https://64.media.tumblr.com/1eb06db2257a8bc603d75634c66e4875/12b83be7f3afc336-b2/s400x600/949055a3e64739b8950dd189997e2d1d031a9fb4.pnj" width="200" height="200%""/>
+<img src="https://64.media.tumblr.com/58b3865f03e7ca48579f42ee1486c532/56171c5fcaf93071-f2/s2048x3072/aabf097f3c86a3eb9c31be5cf1c0724e51dff2b0.pnj" width="250" height="200%""/>
+<img src="https://64.media.tumblr.com/1eb06db2257a8bc603d75634c66e4875/12b83be7f3afc336-b2/s400x600/949055a3e64739b8950dd189997e2d1d031a9fb4.pnj" width="250" height="200%""/>
 </p>
 <br>
 <br>
