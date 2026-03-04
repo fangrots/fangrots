@@ -1,6 +1,3 @@
-wip,, (3/3/26) if u use the code pls credit! <3
-
-
 <p align="center">
 </a>
 <img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=LOCAL+BLOODBAGS" /> <p align="center">
@@ -20,7 +17,7 @@ wip,, (3/3/26) if u use the code pls credit! <3
 </div>
        <br>
  <p align="center">
-<img src="" width="500" height="500%""/>
+<img src="https://64.media.tumblr.com/fbb68eac3054c5f7ea220642a269c8c1/08e2d96d08cb2ea9-40/s500x750/61c1bdae450338c403c00a10ff857c302b453961.gifv" width="800" height="500%""/>
 </p>
 <br>
        
@@ -52,13 +49,25 @@ wip,, (3/3/26) if u use the code pls credit! <3
 <br>
 <br>
  
-<p align="center">
-<img src="" width="500" height="500%""/>
+ <p align="center">
+<img src="https://64.media.tumblr.com/fbb68eac3054c5f7ea220642a269c8c1/08e2d96d08cb2ea9-40/s500x750/61c1bdae450338c403c00a10ff857c302b453961.gifv" width="800" height="500%""/>
 </p>
 <br>
 
-<details align="left">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#dbb8af}blinkies}}$  ֪𓏼𝜗℘ </summary> ${\textsf{\color{#ce8781}text.}}$ <br> hey. </details>
-
-<details align="right">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#dbb8af}userboxes}}$  ֪𓏼𝜗℘ </summary> ${\textsf{\color{#ce8781}text.}}$ <br> hey. </details>
+<details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}blinkies wip}}$  ֪𓏼𝜗℘ </summary> hey. </details>
+<details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}stamps wip}}$  ֪𓏼𝜗℘ </summary> hey. </details>
+<details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}userboxes wip}}$  ֪𓏼𝜗℘ </summary> hey. </details>
+<br>
+</div>
+ <table>
+    <table align="center">
+    <tr></tr>
+      <td>
+        <div align="center">
+          WIP, Adding Blinkies and whatnots soon ! (3/3/26)
+ </td>
+      </tr>
+  </table>      
