@@ -24,7 +24,7 @@ wip,, (3/3/26) if u use the code pls credit! <3
 </p>
 <br>
        
-<img src="https://i.ibb.co/9ktC3CxK/rights.png"  align="left" width="23%"> <p align="center">
+<img src="https://i.ibb.co/KzSQ4jfs/right.png"  align="right" width="40%"> <p align="center">
 <br>
    <p style="font-size: 100px;">⺌  ${\textsf{\color{#fbb2bc}KITTY}}$   or  ${\textsf{\color{#fbb2bc}DOVE}}$   !</p>
 </div>
