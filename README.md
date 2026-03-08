@@ -61,7 +61,7 @@
 <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}mini about me until sites r done!}}$  ֪𓏼𝜗℘ </summary> i have really bad social anxiety and typically freeze up around new people, it's nothing personal it will just take me a minute to start responding to peopl 😓 i enjoy making friends tho! <br> im proship/profic, comship (we ALL are by definition), darkship, and pro-para (anti contact tho, pro contact dni ever)! if this bothers you. just don't interact <3 <br> i find it really hard to approach people / initiate any sort of interaction with people,, more on this later maybeee this is a wip js know i lurk at the protree bc im too shy to chat oki? I'm also very ass at convos,,, forgive me.. <br> -17 iwec or dni at all. i don't mind chatting or being moots but a full on close bond/friendship will NOT be happening! </details>
 <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}blinkies wip}}$  ֪𓏼𝜗℘ </summary> hey. </details>
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}blinkies wip}}$  ֪𓏼𝜗℘ </summary> BOO! did i scare you? im fictional problematic yaoi. </details>
 <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}stamps wip}}$  ֪𓏼𝜗℘ </summary> hey. </details>
 <details align="center">
@@ -74,7 +74,8 @@
       <td>
         <div align="center">
           WIP, Adding Blinkies and whatnots soon ! (3/3/26) <br>
-           give credit if using my layouts, thank you! <3
+           give credit if using my layouts, thank you! <3 <br>
+              Art from plushstarfever :3
  </td>
       </tr>
   </table>      
