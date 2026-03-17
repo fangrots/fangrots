@@ -1,65 +1,15 @@
 <p align="center">
 </a>
 <img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=f18d9b&base=200&label=LOCAL+BLOODBAGS" /> <p align="center">
-<br>
-<p align="center">
-<img src="https://i.ibb.co/1YkvH2mp/top.png" width="600" height="500%""/>
-</p>
-<div align="center">
-<div class="container">
-   <!-- First Image -->
-    <img src="https://i.ibb.co/qL52PpqX/lleft.png" width="150" height="100%""/>
-    <!-- SVG Element -->
-    <a href="https://github.com/whiteSHADOW1234/TypingSVG"><img src="https://typingsvg.vercel.app/api/svg?width=430&backgroundColor=%23b3c0cb&backgroundOpacity=0&lines=%5B%7B%22text%22%3A%22Sugar%2C+spice%2C+and+torture%22%2C%22font%22%3A%22Press+Start+2P%22%2C%22color%22%3A%22%23f4a9bf%22%2C%22fontSize%22%3A13%2C%22typingSpeed%22%3A0.05%2C%22deleteSpeed%22%3A0.05%7D%2C%7B%22text%22%3A%22Do+it+for+the+culture%21%22%2C%22font%22%3A%22Press+Start+2P%22%2C%22color%22%3A%22%23f5a8bb%22%2C%22fontSize%22%3A16%2C%22typingSpeed%22%3A0.05%2C%22deleteSpeed%22%3A0.05%7D%5D" alt="Typing SVG"
-    </svg>
-    <!-- Second Image -->
-    <img src="https://i.ibb.co/BHfk77rN/rright.png" width="150" height="100%""/>
-</div>
-       <br>
- <p align="center">
-<img src="https://64.media.tumblr.com/fbb68eac3054c5f7ea220642a269c8c1/08e2d96d08cb2ea9-40/s500x750/61c1bdae450338c403c00a10ff857c302b453961.gifv" width="800" height="500%""/>
-</p>
-<br>
-       
-<img src="https://i.ibb.co/KzSQ4jfs/right.png"  align="right" width="40%"> <p align="center">
-<br>
-   <p align="center">
-<img src="https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj" width="150" height="200%""/>
-<img src="https://64.media.tumblr.com/21374f0d4c5369ab7ad51af56d906849/0d108562eb4f0805-76/s500x750/5fd36c919f7466ccc943417629f219de1f298dc6.jpg" width="150" height="200%""/>
-</p>
-</div>
  <table>
     <table align="center">
     <tr></tr>
       <td>
         <div align="center">
-           ⺌  ${\textsf{\color{#fbb2bc}KITTY}}$   or  ${\textsf{\color{#fbb2bc}DOVE}}$   ! <br>
- ｢ ${\textsf{\color{#fbb2bc}19}}$ yo  ♡ He Hrr  ♡  Anti — ${\textsf{\color{#fbb2bc}Hara}}$!｣ <br>
-           ${\textsf{\color{#fbb2bc}Sys}}$ host ， Mentally ill ， ${\textsf{\color{#fbb2bc}Always}}$ Iwc! <br>
-           Dx'd N/Bpd ， Autism ， Osdd-1b+ <br>
-           Yumeshipper ， Rarepair Lover ， Proship <br>
-           Socially Inept and Awkward ， Introverted <br>
-           Infp-t ， 6w5 ， Melancholy-Phlegmatic <br>
-           Biracial ， Black and White ， Eng <br>
-           Artist ， Writer ， Multifandom
+          remaking soon, refer to strawpage for now! <br>
  </td>
       </tr>
   </table>      
-<p align="center">
-<img src="https://64.media.tumblr.com/58b3865f03e7ca48579f42ee1486c532/56171c5fcaf93071-f2/s2048x3072/aabf097f3c86a3eb9c31be5cf1c0724e51dff2b0.pnj" width="150" height="200%""/>
-<img src="https://64.media.tumblr.com/1eb06db2257a8bc603d75634c66e4875/12b83be7f3afc336-b2/s400x600/949055a3e64739b8950dd189997e2d1d031a9fb4.pnj" width="150" height="200%""/>
-</p>
-<br>
-<br>
-<br>
- 
- <p align="center">
-<img src="https://64.media.tumblr.com/fbb68eac3054c5f7ea220642a269c8c1/08e2d96d08cb2ea9-40/s500x750/61c1bdae450338c403c00a10ff857c302b453961.gifv" width="800" height="500%""/>
-</p>
-<br>
-
-<details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}mini about me until sites r done!}}$  ֪𓏼𝜗℘ </summary> i have really bad social anxiety and typically freeze up around new people, it's nothing personal it will just take me a minute to start responding to peopl 😓 i enjoy making friends tho! <br> im proship/profic, comship (we ALL are by definition), darkship ( i don't speak about it with, like, anyone. idrc if we do but don't mention adult x minor without a warning, thx! ), and pro-para (anti contact tho, pro contact dni ever)! if this bothers you. just don't interact <3 <br> i find it really hard to approach people / initiate any sort of interaction with people,, more on this later maybeee this is a wip js know i lurk at the protree bc im too shy to chat oki? I'm also very ass at convos,,, forgive me.. <br> -17 iwec or dni at all. i don't mind chatting or being moots but a full on close bond/friendship will NOT be happening! </details>
 <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}blinkies wip}}$  ֪𓏼𝜗℘ </summary> <img src="https://64.media.tumblr.com/17fa633cc191721aee069f73ff5b8fe1/d3c2d6100f74fc00-06/s250x400/fe3181caca0a3391417c3fe4765555834c289d06.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/5bb9f46a70ffeb863f14bd25a215f906/d3c2d6100f74fc00-8c/s250x400/0cf546524bcfd99e4849ba1319995b622f4654b6.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/de7fdf324ebd5a680240181f1d09684e/1ff6cfa5dfd1fde5-c3/s400x600/daab4d1e91ac113527cbd5fd7527cbb4c514386c.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/588c485a783611e27fc1874f90f43715/058ee9e3213d3f4f-59/s250x400/be4c7663dd82a644d54f27f993b4e2b12bbb96c3.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/8d8767aea782485ce1f42ebbe719d47b/2a25a5e1abd64440-76/s250x400/06a449739bf7dcf77b18bab2230dd94c3dd0c761.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/b7b305c83cc8f020441846788984a6ae/e6c3d6e24bb9e481-89/s250x400/ba5ea0c31793aa79d46f0e49dd9a6ae5d5f8e186.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/8d6cf5c7d94fc7166f5125ebe550f80e/e6c3d6e24bb9e481-14/s250x400/8607c1d8adb1f46641551d6eb0253a283a010ace.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/3202dadc71198983fdb958372fb64616/e6c3d6e24bb9e481-25/s250x400/220ab9d6cca95b6b95444112c25d497f8b148d44.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/eee663247e2c73191e41148d7c2c617e/cfa03931bb88b3e8-05/s250x400/c074d5f86b0f7330389190c7d19c756d4f0e0ea0.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/200778f53c8e873f85fe6fe0abc918a8/7f2fb3d3115552c6-e3/s250x400/23ce89fb5689de1c2ef92cdf84b8bba0c064a03f.gifv"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/g63.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/a61.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/g124.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/x11.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/65.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/11.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/53.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/z14.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/x45.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/t6.gif"width="200" height="200%"/> <img src="https://adriansblinkiecollection.neocities.org/h25.gif"width="200" height="200%"/> <img src="https://i.imgur.com/muTVUsW.gif"width="200" height="200%"/> <img src="https://i.imgur.com/MDwpThs.gif"width="200" height="200%"/> <img src="https://64.media.tumblr.com/9e8174267b27832aac0245567ae07c30/f685de98714bb434-75/s250x400/891e4915043adcace7a9517616dff4619f5d6846.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/8c368acedaee426fb26b33a2a02aa322/19013e83c8a261ce-59/s250x400/8a9e299f986e5148cba5bba146e703938bc2eb96.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/cd04adbf5004ca4a6f5e85858b2e98ed/19013e83c8a261ce-3a/s250x400/0abb385b744ff92814f41e2877ef7f228b141a01.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/ca3a0ae79fcf88b517e64ea0cb024670/cfda3078bde036fa-da/s250x400/845f040a21eed4a68a047c80218378ecc87c7cdf.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/6084b9542b0de2dafaa0efce21cdeb74/ec300495be9aaafe-cc/s250x400/1b700eeb1955d8679e949f3be559f6ef17d12028.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/7b9dcb4a4fadd05cd034533931e8ce1b/59d139dd548b9327-bc/s250x400/8cb3975deec869cdf8a43b1c0e857535d3429204.webp"width="200" height="200%"/> <img src="https://64.media.tumblr.com/f1cace884cb415da89bb188d6ae7b5e7/e6c3d6e24bb9e481-a0/s250x400/dcfb54f0fc43f5c94cb4e68b0c95dbafb418a4a7.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/7d9c86643c8fb15d89f3a25082a2b439/c56a4856587bf371-82/s540x810/47ceaf520489354fe4c2a59c85a3066fdcf17db3.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/fc0d6860cdad86b5db72e5dfb93b22bc/2383a6ea20118e43-e3/s250x400/ac1d57329b93ec4901fc6ef60e1cbf42e35c4ec0.webp"width="200" height="200%"/> <img src="https://64.media.tumblr.com/46c1f2353bf7ccdb4eb057e208312885/2383a6ea20118e43-99/s250x400/bb55e79b203260d17ab6dc792feb02cbeef13692.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/83c783b879c707f59a8717e9a10cfda3/c6e1be4eb93c3d73-d1/s250x400/92ac1e8f0ea0dbfdc6428f2b25e900bd749d6b6e.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/f0a12a2bdb0982870867484e83c3d516/d13620ee9b770747-34/s250x400/bb0cd89435d88d100e136ff562d774a2445f77ce.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/7e259395a5789fe51f88e616cca1de65/f85aa4b8f0622a57-ca/s250x400/326c7a2a2b8ea1f00f54b5ca6d8618bd83e2439a.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/b16ee7a79629c834d8fd8f7a2b8cd364/bea578ccfee15413-8c/s250x400/5fce00f59d87544ca01f6da3614131ec024476c9.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/48f4a045adf28915f870587d41c2335a/ecc8c6809fad26e4-d7/s250x400/6480b487b348d1c434344aa53b139c0573606a3b.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/b9ee0a55fcee1824719c6a71bd6578ed/903596e4dc994aaf-ae/s250x400/a49a47759e253b2ea214992ce397b139d62229c5.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/11592fbd1f6fca3d83913c087c743155/903596e4dc994aaf-cd/s250x400/2408035798938dbafbcdf23474e3151821e09179.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/27a663bf864f445a071c3b35f096fa53/35211880f2a79cc4-e0/s250x400/9292d37c9281832f2c48b4a19eb8ce0b2ff6a558.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/9de58bd3cf2f502360a6f2078a06a890/33482cf83af8f0c3-5f/s250x400/709d02324b034b5f57f060a1f12f68789ca1a718.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/f60698757df35a69979a645ce8105141/e10473b4f89888d3-4f/s250x400/4cdee1332edd38e682bb363830646e95fdf500b3.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/b5d97acd6871cb5533f3f3211c0fb24a/96987e7810e97630-a2/s250x400/27d4e4463402cfcb8646235a099380f1cd748ab1.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/53e33d9b6cd2f88c90eca6cb645b5e67/9bdf0c3f87bb564a-b6/s250x400/b8338d4123f8ce6ea167f6378d5fa95fffb0c1f6.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/1aceab188070420a2bc062317d9333b1/53f61215327136e5-8a/s250x400/d9c5edbeb5d796a5c790b36245d09a2d529cdb9a.gifv"width="200" height="200%"/> <img src="https://64.media.tumblr.com/d0148b4e692e77c8bb0fb381565fd7ea/84defca3abe8bfd5-1a/s250x400/5d8d3c0beebda348d11675b33283b2f3fa44253d.webp"width="200" height="200%"/> <img src="https://64.media.tumblr.com/884004d6fb8c58bbff612bfcb0906900/4494d953484c5b8c-ed/s250x400/f4d73d6a92d8737ed64b82b4f68369c8b5a14a63.gifv"width="200" height="200%"/></details>
 <details align="center">
@@ -68,14 +18,3 @@
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fbb2bc}userboxes wip}}$  ֪𓏼𝜗℘ </summary> hey. </details>
 <br>
 </div>
- <table>
-    <table align="center">
-    <tr></tr>
-      <td>
-        <div align="center">
-          WIP, Adding Blinkies and whatnots soon ! (3/3/26) <br>
-           give credit if using my layouts, thank you! <3 <br>
-              Art from plushstarfever :3
- </td>
-      </tr>
-  </table>      
