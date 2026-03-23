@@ -3,7 +3,7 @@
 <img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=8c3e2a&base=200&label=LOCAL+BLOODBAGS" /> <p align="center">
  <p align="center">
 </a>
-<img src="https://media1.tenor.com/m/ZO--L-n8gEIAAAAd/sinners-dance.gif" />
+<img src="https://static.wikia.nocookie.net/zenless-zone-zero/images/a/a7/Zenless_Zone_Zero_Ridu_Stroll_Sticker_Pack_1_Nekomata.png/revision/latest?cb=20240321041454" width="100" height="100%"/>
 <p align="center">
 <p align="center">
  ${\textsf{\color{#8c3e2a}they say the truth hurts, so i lie to you.}}$
@@ -13,7 +13,7 @@
     <tr></tr>
       <td>
         <div align="center">
-          remaking soon, refer to strawpage for now! <br>
+          work in progress <br>
  </td>
       </tr>
   </table>      
