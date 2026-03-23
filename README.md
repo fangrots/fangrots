@@ -2,12 +2,12 @@
 </a>
 <img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=8c3e2a&base=200&label=LOCAL+BLOODBAGS" /> <p align="center">
  <p align="center">
-</a>
-<img src="https://static.wikia.nocookie.net/zenless-zone-zero/images/a/a7/Zenless_Zone_Zero_Ridu_Stroll_Sticker_Pack_1_Nekomata.png/revision/latest?cb=20240321041454" width="100" height="100%"/>
-<p align="center">
-<p align="center">
+  <p align="center">
  ${\textsf{\color{#8c3e2a}they say the truth hurts, so i lie to you.}}$
  <p align="center">
+</a>
+<img src="https://static.wikia.nocookie.net/zenless-zone-zero/images/a/a7/Zenless_Zone_Zero_Ridu_Stroll_Sticker_Pack_1_Nekomata.png/revision/latest?cb=20240321041454" width="150" height="160%"/>
+<p align="center">
  <table>
     <table align="center">
     <tr></tr>
